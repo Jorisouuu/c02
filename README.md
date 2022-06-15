@@ -1,4 +1,4 @@
 # c02
 
 
-Pas finis ne pqs oublier d'upload la fin
+Pas finis ne pas oublier d'upload la fin
